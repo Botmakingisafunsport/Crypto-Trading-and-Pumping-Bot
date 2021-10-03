@@ -4,4 +4,4 @@ DM Me for the Bots
 Prices will be told
 All bots work and are tested 
 
-Discord: Whohackedme#0622
+Discord: CryptoSniper#9552
